@@ -3,6 +3,7 @@
 > this github account was made for ponytown!
 - You can usually always chat ++ c+h unless my dn specifically states not to
   (I always love talkign to people)
+- i dont know to start conversations or react when someone does cuddle or hide, sory.
 ***
 > dni
 - basic dni criteria
